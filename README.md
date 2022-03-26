@@ -7,6 +7,7 @@ Let's all learn and grow by working hands on
 
 Linkedin : https://www.linkedin.com/in/thrinadh-manubothu/
 mailto: m.thrinadhreddy@gmail.com
+Telegram Channel Link: https://t.me/networkautomation_thrinadh
 
 Thanks and regards,
 Thrinadh Manubothu.
